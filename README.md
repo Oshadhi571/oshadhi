@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning *Python, Java, Javascript, HTML and CSS*
 
-- 📫 How to reach me *nirukshikasewwandi@gmail.com*
+- 📫 How to reach me *arundathioshadhi2001@gmail.com*
 
 - ⚡ Fun fact *I'm a social butterfly!*
 
